@@ -1,0 +1,1 @@
+# gestaoconfig2026
